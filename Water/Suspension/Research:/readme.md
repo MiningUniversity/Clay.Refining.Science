@@ -9,3 +9,5 @@ Diagram:
 ## [Aggregation mechanism of colloidal kaolinite in aqueous solutions with electrolyte and surfactants](https://pmc.ncbi.nlm.nih.gov/articles/PMC7505426/)
 
 ## [A simple criterion and experiments for onset of flocculation in kaolin clay suspensions](https://arxiv.org/abs/2203.15545)
+
+## [Kaolinite colloidal suspensions under the influence of sodium dodecyl sulfate](https://pubs.aip.org/aip/pof/article-abstract/34/1/013107/2845793/Kaolinite-colloidal-suspensions-under-the?redirectedFrom=fulltext)
