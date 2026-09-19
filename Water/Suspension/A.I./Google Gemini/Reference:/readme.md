@@ -14,6 +14,8 @@
 - [Flocculation of Kaolinite Clay using Natural Polymer](https://www.researchgate.net/publication/237411747_Flocculation_of_Kaolinite_Clay_using_Natural_Polymer)
 - https://www.quora.com/How-do-you-separate-small-clay-particles-and-water
 - [Colloidal and Sedimentation Behavior of Kaolinite Suspension in Presence of Non-Ionic Polyacrylamide (PAM)](https://pmc.ncbi.nlm.nih.gov/articles/PMC9777828/)
+- https://hardwickhandmade.com/ceramic-material-clay-pottery/flocculation-deflocculation-materials-clay/
+- [Is there any procedure to separate individual clay minerals from the soil?](https://www.researchgate.net/post/Is_there_any_procedure_to_separate_individual_clay_minerals_from_the_soil)
 - 
 
 
