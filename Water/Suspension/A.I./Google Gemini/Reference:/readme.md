@@ -10,6 +10,9 @@
 - [Experimental study of the rheology of water–kaolinite suspensions](https://iwaponline.com/ws/article/22/2/1781/84243/Experimental-study-of-the-rheology-of-water)
 
 # query[1]:
+- [Flocculation of kaolinite suspensions in water by chitosan](https://www.sciencedirect.com/science/article/abs/pii/S0043135401001312)
+- [Flocculation of Kaolinite Clay using Natural Polymer](https://www.researchgate.net/publication/237411747_Flocculation_of_Kaolinite_Clay_using_Natural_Polymer)
+- 
 
 
 # query[2]:
