@@ -1,5 +1,7 @@
 # query[0]:
 - [Liquid–solid transition of kaolinite suspensions](https://www.sciencedirect.com/science/article/abs/pii/S0167663607000142)
+- https://www.britannica.com/science/kaolinite
+- [Basics of Clay Minerals and Their Characteristic Properties](https://www.intechopen.com/chapters/76780)
 - 
 
 # query[2]:
