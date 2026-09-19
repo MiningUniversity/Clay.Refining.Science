@@ -19,6 +19,9 @@
 - [Which solvent dissolves kaolin completely?](https://www.researchgate.net/post/Which-solvent-dissolves-kaolin-completely)
 - [Removal of Suspended Clay Particles in Water by Weathered Volcanic Ash-Based Material](https://asrjetsjournal.org/American_Scientific_Journal/article/download/3262/1229/9948)
 - https://repository.rothamsted.ac.uk/id/eprint/30490/1/bc3b974289cfa826a6650bbca63fd9d36759.pdf
+- https://community.ceramicartsdaily.org/topic/23353-flocculating-a-glaze/
+- https://www.ftmmachinery.com/blog/kaolin-clay-purification-methods-and-equipment.html
+- https://www.academia.edu/21606476/Kaolinite_flocculation_structure
 - 
 
 
