@@ -1,0 +1,1 @@
+- [Liquid–solid transition of kaolinite suspensions](https://www.sciencedirect.com/science/article/abs/pii/S0167663607000142)
