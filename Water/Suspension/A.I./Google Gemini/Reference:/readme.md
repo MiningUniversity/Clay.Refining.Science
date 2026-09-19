@@ -16,6 +16,7 @@
 - [Colloidal and Sedimentation Behavior of Kaolinite Suspension in Presence of Non-Ionic Polyacrylamide (PAM)](https://pmc.ncbi.nlm.nih.gov/articles/PMC9777828/)
 - https://hardwickhandmade.com/ceramic-material-clay-pottery/flocculation-deflocculation-materials-clay/
 - [Is there any procedure to separate individual clay minerals from the soil?](https://www.researchgate.net/post/Is_there_any_procedure_to_separate_individual_clay_minerals_from_the_soil)
+- [Which solvent dissolves kaolin completely?](https://www.researchgate.net/post/Which-solvent-dissolves-kaolin-completely)
 - 
 
 
