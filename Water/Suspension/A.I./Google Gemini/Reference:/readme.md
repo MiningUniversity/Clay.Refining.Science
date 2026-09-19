@@ -18,6 +18,7 @@
 - [Is there any procedure to separate individual clay minerals from the soil?](https://www.researchgate.net/post/Is_there_any_procedure_to_separate_individual_clay_minerals_from_the_soil)
 - [Which solvent dissolves kaolin completely?](https://www.researchgate.net/post/Which-solvent-dissolves-kaolin-completely)
 - [Removal of Suspended Clay Particles in Water by Weathered Volcanic Ash-Based Material](https://asrjetsjournal.org/American_Scientific_Journal/article/download/3262/1229/9948)
+- https://repository.rothamsted.ac.uk/id/eprint/30490/1/bc3b974289cfa826a6650bbca63fd9d36759.pdf
 - 
 
 
