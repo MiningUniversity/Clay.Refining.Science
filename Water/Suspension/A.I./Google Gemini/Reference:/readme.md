@@ -12,6 +12,8 @@
 # query[1]:
 - [Flocculation of kaolinite suspensions in water by chitosan](https://www.sciencedirect.com/science/article/abs/pii/S0043135401001312)
 - [Flocculation of Kaolinite Clay using Natural Polymer](https://www.researchgate.net/publication/237411747_Flocculation_of_Kaolinite_Clay_using_Natural_Polymer)
+- https://www.quora.com/How-do-you-separate-small-clay-particles-and-water
+- [Colloidal and Sedimentation Behavior of Kaolinite Suspension in Presence of Non-Ionic Polyacrylamide (PAM)](https://pmc.ncbi.nlm.nih.gov/articles/PMC9777828/)
 - 
 
 
