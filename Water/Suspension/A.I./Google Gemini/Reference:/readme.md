@@ -22,7 +22,7 @@
 - https://community.ceramicartsdaily.org/topic/23353-flocculating-a-glaze/
 - https://www.ftmmachinery.com/blog/kaolin-clay-purification-methods-and-equipment.html
 - https://www.academia.edu/21606476/Kaolinite_flocculation_structure
-- 
+- [The method employed to separate clay particles from water is__________________](https://brainly.in/question/4253114)
 
 
 # query[2]:
