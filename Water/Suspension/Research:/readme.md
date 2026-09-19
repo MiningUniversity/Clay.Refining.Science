@@ -11,3 +11,5 @@ Diagram:
 ## [A simple criterion and experiments for onset of flocculation in kaolin clay suspensions](https://arxiv.org/abs/2203.15545)
 
 ## [Kaolinite colloidal suspensions under the influence of sodium dodecyl sulfate](https://pubs.aip.org/aip/pof/article-abstract/34/1/013107/2845793/Kaolinite-colloidal-suspensions-under-the?redirectedFrom=fulltext)
+
+## [Flocculation of kaolinite suspensions in water by chitosan](https://pubmed.ncbi.nlm.nih.gov/12230172/)
