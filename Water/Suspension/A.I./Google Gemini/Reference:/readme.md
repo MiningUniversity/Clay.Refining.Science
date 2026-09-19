@@ -4,7 +4,7 @@
 - https://www.researchgate.net/figure/Ternary-diagram-for-water-kaolinite-bentonite-suspensions-black-dots-represent-systems_fig7_353013711 from: [Rheology and yielding transitions in mixed kaolinite/bentonite suspensions](https://www.researchgate.net/publication/353013711_Rheology_and_yielding_transitions_in_mixed_kaolinitebentonite_suspensions)
 - [Basics of Clay Minerals and Their Characteristic Properties](https://www.intechopen.com/chapters/76780)
 - [Aggregation mechanism of colloidal kaolinite in aqueous solutions with electrolyte and surfactants](https://pmc.ncbi.nlm.nih.gov/articles/PMC7505426/)
-- 
+- [A simple criterion and experiments for onset of flocculation in kaolin clay suspensions](https://arxiv.org/abs/2203.15545)
 
 # query[2]:
 - [How To Make Refractory Fire Bricks](https://youtu.be/18fTSNa_E3M)
