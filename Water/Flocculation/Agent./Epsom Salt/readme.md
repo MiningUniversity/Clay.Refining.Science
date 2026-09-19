@@ -1,0 +1,1 @@
+worked amazingly well! Only needs a few tens of micrograms per liter of clay water suspension. starts to visibly settle within 10 minutes, after an hour or two it should mostly be fully completed. The top layer may be murky & translucent but very distinct, compared to clay below.
