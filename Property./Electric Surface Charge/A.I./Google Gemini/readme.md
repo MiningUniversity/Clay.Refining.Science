@@ -10,3 +10,7 @@ Goal is simply to reduce the drying time by concentrating the clay on the bottom
 
 https://share.google/aimode/BYMgvJo0pmzoMfYls
 
+They're going to be sun-dried. But some of them may end up as building materials for outdoor fireplace or simple wood-fired kilns. So over time and during use they will be exposed to medium heat.
+
+https://share.google/aimode/xHCaNRUWB9LsDiQhJ
+
