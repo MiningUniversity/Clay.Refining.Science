@@ -21,3 +21,9 @@ https://share.google/aimode/bGmS7AmVvLGwMaWyK
 scaling calculations?
 
 https://share.google/aimode/CoRV4xSnVU5flOpuJ
+
+Thanks! I'll get back to you with the data soon. 
+
+in the meantime, can you help me understand an experiment I ran earlier? I harvested some clay from a pine tree forest. I'm southern Mississippi State close to the Mississippi River delta. This is in Picayune Mississippi near the Stennis Space Center. The sample is taken from several feet underground near where a stream has been depositing it in a small floodplain. There was abundant clay through all the soil layers but I dug down through the subsoil until I hit agglomerations of orange iron particles about 4 ft below ground. And that's where I took the play sample from. The clay once separated from other soil and filtered through fine cloth is a very light beige colored. And very sticky when starting to dry. What type of clay is this?
+
+https://share.google/aimode/VTX1Z2U7W5KiV39lb
