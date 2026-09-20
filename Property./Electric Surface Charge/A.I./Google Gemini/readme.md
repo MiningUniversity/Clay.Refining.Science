@@ -36,6 +36,4 @@ I'm definitely going to try vinegar next!
 
 Here's the interesting part. Epsom salt is something I would have to buy, but I have an abundant amount of firewood. In bottle number four I sprinkled a few grams of wood ash this was in the dry powdered form but it had been sifted through fine screens to get out as much carbon as possible. it turns out some component in the wood ash caused it to flocculate! it was not nearly as pronounced as the Epsom salt maybe 1/10 the effect but several hours later there's a very pronounced layer of clay in the water above it is still murky but much clearer and continues to settle as hours passed. I also may have put too much ash. because I initially didn't get an effect and then added much more, about 2 teaspoons.
 
-I'm definitely going to try vinegar next! 
-
-Here's the interesting part. Epsom salt is something I would have to buy, but I have an abundant amount of firewood. In bottle number four I sprinkled a few grams of wood ash this was in the dry powdered form but it had been sifted through fine screens to get out as much carbon as possible. it turns out some component in the wood ash caused it to flocculate! it was not nearly as pronounced as the Epsom salt maybe 1/10 the effect but several hours later there's a very pronounced layer of clay in the water above it is still murky but much clearer and continues to settle as hours passed. I also may have put too much ash. because I initially didn't get an effect and then added much more, about 2 teaspoons.
+https://share.google/aimode/sHK6v9mrub0mZPtYs
