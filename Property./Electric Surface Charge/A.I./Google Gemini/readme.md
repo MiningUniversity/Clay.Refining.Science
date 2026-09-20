@@ -27,3 +27,7 @@ Thanks! I'll get back to you with the data soon.
 in the meantime, can you help me understand an experiment I ran earlier? I harvested some clay from a pine tree forest. I'm southern Mississippi State close to the Mississippi River delta. This is in Picayune Mississippi near the Stennis Space Center. The sample is taken from several feet underground near where a stream has been depositing it in a small floodplain. There was abundant clay through all the soil layers but I dug down through the subsoil until I hit agglomerations of orange iron particles about 4 ft below ground. And that's where I took the play sample from. The clay once separated from other soil and filtered through fine cloth is a very light beige colored. And very sticky when starting to dry. What type of clay is this?
 
 https://share.google/aimode/VTX1Z2U7W5KiV39lb
+
+Thanks! So I did an experiment: I took a homogeneous sample of clay in water suspension and put it in four bottles, 1 l a piece filled about halfway with clay slurry. In one bottle one I added a tiny amount of Epsom salt. this caused the clay to flocculate and settle very quickly! within 10 minutes there was a visible layer of clear water. And within an hour it had almost completely settled.
+
+https://share.google/aimode/IGcuhUEQso4RlYpGY
