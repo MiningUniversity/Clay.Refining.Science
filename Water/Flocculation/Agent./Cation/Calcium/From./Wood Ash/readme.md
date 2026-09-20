@@ -7,3 +7,7 @@ But the primary form in wood ash: calcium carbonate and calcium oxide is very sl
 
 # Todo:
 See if I can convert the calcium carbonate into another form that would release ions quicker.
+
+# A.I.
+## Google Gemini
+https://share.google/aimode/n2w0OSYk0NegLTRtN
