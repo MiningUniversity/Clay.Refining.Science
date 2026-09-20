@@ -1,0 +1,1 @@
+- [A new surface structural approach for modeling the charging behavior of kaolinite](https://www.sciencedirect.com/science/article/abs/pii/S0009254123003911)
