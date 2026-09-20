@@ -14,3 +14,10 @@ They're going to be sun-dried. But some of them may end up as building materials
 
 https://share.google/aimode/xHCaNRUWB9LsDiQhJ
 
+how to test a small batch?
+
+https://share.google/aimode/bGmS7AmVvLGwMaWyK
+
+scaling calculations?
+
+https://share.google/aimode/CoRV4xSnVU5flOpuJ
